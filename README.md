@@ -1,1 +1,0 @@
-# Beautician-World
